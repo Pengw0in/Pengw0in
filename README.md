@@ -1,5 +1,5 @@
 ## Hola! ##
-I'm into **cybersecurity**—learning, breaking, and securing things.  
+I bring late night ideas to life no matter how weird
 
 Stay curious.  
 
