@@ -1,7 +1,9 @@
-## Hola! ##
-I bring late night ideas to life no matter how weird
+What if stars are seeds of thought,\
+Scattered wide but never caught?\
+I water them with wondering eyes,\
+And dream of trees that touch the skies.
 
-Stay curious.  
+Stay curious.
 
 ## Contact Me
-You can text me on Discord at @zenzo.oo or email me at zendexino@gmail.com
+You can text me on Discord at @zenzo.oo or mail me at zendexino@gmail.com
